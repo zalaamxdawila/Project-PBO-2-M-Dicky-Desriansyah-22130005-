@@ -1,1 +1,1 @@
-Assalammualaikum Pak, Ini Tugas project Saya M Dicky Desriansyah dengan nomor BP 22130005, dari matakuliah PBO 2, Terima kasih pak
+Assalammualaikum Pak, Ini Tugas project Saya M Dicky Desriansyah dengan nomor BP 22130005, dari matakuliah PBO 2, dengan Judul "Aplikasi Pendataan Pendapatan dan Pengeluaran di Counter Pulsa Loka Offset & Seluler", Terima kasih pak, Dan terima kasih kepada Ayah Ibu saya atas dukungannya :)
